@@ -2,34 +2,24 @@ If you can't find the skin that you want or something is wrong just message me o
 
 # [Aricin 1.0](https://drive.google.com/file/d/1KhCqh1nx97Dix8GfG2RUjzGoCCLLfIDW/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18045397/3230)
-
 # [Aricin 2.0](https://drive.google.com/file/d/1uDmjkTZdyfl_BXgLBzmkiWPp2GSb3c91/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18045396/5b8a)
-
 # [Aristia](https://drive.google.com/file/d/1AhZO3s7CJntrt6ieNYhcvNz2VUABAizR/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18045474/5427)
-
-# [Arnold24x24](https://drive.google.com/file/d/1l1Nlj5sJPIqNr3iLtfnym088AhAYyM-_/view?usp=sharing)
+# [Arnold24x24](https://drive.google.com/file/d/12Ms3cBblOFL6RQsGMCNlcvr0YO6B9M8g/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18045476/f49b)
-
 # [BTMC](https://drive.google.com/file/d/1JfSnTEwVxMIctHAPg2cxogJscecDef6H/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18045480/4237)
-
 # [Bubbleman](https://drive.google.com/file/d/1tSOtZIBlgyQ6KnHjNhC_2K5FUqpxs1WX/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18045481/a428)
-
 # [Ekoro](https://drive.google.com/file/d/1PvbL8Wr53ZHKspnjq5f_rzOr5a2zPvqX/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18045595/6fed)
-
 # [FlyingTuna](https://drive.google.com/file/d/1s-xG1Jmk6aKoA8RwikDWgyNvnFLEndjC/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18045488/ea29)
-
 # [-GN](https://drive.google.com/file/d/1yOwyeX1jL5-8HiMSPTrYoC5wNb1_dFpO/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18045490/0543)
-
 # [Khz](https://drive.google.com/file/d/1pR2U7hvkc7NKFif2EZ12gAPhSUTBnSjM/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18045494/c3ae)
-
 # [Khz (New)](https://drive.google.com/file/d/1Ygm-hm0sXVZi77BmZe3DKIbEp1D0PfCO/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18045559/4423)
 # [Maliszewski](https://drive.google.com/file/d/1a2kLe9eZspX8hmucQ5LQ2Bkla_JIUWXd/view?usp=sharing)
@@ -42,7 +32,7 @@ If you can't find the skin that you want or something is wrong just message me o
 ![](https://osu.ppy.sh/ss/18045505/849e)
 # [Niii_san](https://drive.google.com/file/d/1uBJvTjjRajho3_BQYPJzq-35rfixBRji/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18045507/6d06)
-# [Ninerik Edit](https://drive.google.com/file/d/1l1Nlj5sJPIqNr3iLtfnym088AhAYyM-_/view?usp=sharing)
+# [Ninerik Edit](https://drive.google.com/file/d/14t2MKVGR0MOdQwV-60d10J6kdI9SPDIa/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18045493/96a6)
 # [Ninerik](https://drive.google.com/file/d/1esNIp7wtmotUnxmxEhSe3q9KHUmXU9jo/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18045509/8e2a)
