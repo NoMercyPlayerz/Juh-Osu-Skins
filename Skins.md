@@ -1,4 +1,4 @@
-If you can't find the skin that you want or something is wrong just send me a message on my discord! No Mercy#5572
+If you can't find the skin that you want or something is wrong just message me on my discord! No Mercy#5572
 # [Aricin 1.0](https://drive.google.com/file/d/1KhCqh1nx97Dix8GfG2RUjzGoCCLLfIDW/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18045397/3230)
 # [Aricin 2.0](https://drive.google.com/file/d/1uDmjkTZdyfl_BXgLBzmkiWPp2GSb3c91/view?usp=sharing)
