@@ -17,7 +17,7 @@
 # [Khz](https://drive.google.com/file/d/1l1Nlj5sJPIqNr3iLtfnym088AhAYyM-_/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18045494/c3ae)
 # [Khz (New)](https://drive.google.com/file/d/1l1Nlj5sJPIqNr3iLtfnym088AhAYyM-_/view?usp=sharing)
-![](https://osu.ppy.sh/ss/18045495/560c)
+![](https://osu.ppy.sh/ss/18045559/4423)
 # [Maliszewski](https://drive.google.com/file/d/1l1Nlj5sJPIqNr3iLtfnym088AhAYyM-_/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18045498/e207)
 # [Mathi](https://drive.google.com/file/d/1l1Nlj5sJPIqNr3iLtfnym088AhAYyM-_/view?usp=sharing)
