@@ -4,7 +4,7 @@ If you can't find the skin that you want or something is wrong just message me o
 ![](https://osu.ppy.sh/ss/18045397/3230)
 # [Aricin 2.0](https://drive.google.com/file/d/1uDmjkTZdyfl_BXgLBzmkiWPp2GSb3c91/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18045396/5b8a)
-# [Aristia](https://drive.google.com/file/d/1AhZO3s7CJntrt6ieNYhcvNz2VUABAizR/view?usp=sharing)
+# [Aristia](https://drive.google.com/file/d/12xHpKcdN5HNnAQnjL8JN507ZyQEEFCn-/view)
 ![](https://osu.ppy.sh/ss/18045474/5427)
 # [Arnold24x24](https://drive.google.com/file/d/12Ms3cBblOFL6RQsGMCNlcvr0YO6B9M8g/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18045476/f49b)
